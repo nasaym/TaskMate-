@@ -35,7 +35,18 @@ TaskMate serves as an indispensable tool in enabling users to attain personal or
 
 Contributors
 
-	
+	سالي وحيد 
+
+	عهود حسن 
+
+	خديجه بحني 
+
+	مريم عامر
+
+	نسايم احمد
 
 to contact us
+
+nasaym1029@gmail.com
+
 
